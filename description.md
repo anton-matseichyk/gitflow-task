@@ -24,8 +24,8 @@
 5. **Фото телфона сзади**
 ![Фото телфона сзади](https://content2.onliner.by/catalog/device/main/5b51b95956cbbe5cd7f2bf6eb975df18.jpeg)
 ## Похожие устройства
-1. Для[состоятельных](https://catalog.onliner.by/mobile/maxvi/mp18gold).
-2. Для[военных](https://catalog.onliner.by/mobile/bq/bq2819c).
-3. Для[практичных](https://catalog.onliner.by/mobile/digma/linxa230wt2gb).
-4. Для[??](https://catalog.onliner.by/mobile/maxvi/j8r).
+1. Для [состоятельных](https://catalog.onliner.by/mobile/maxvi/mp18gold).
+2. Для [военных](https://catalog.onliner.by/mobile/bq/bq2819c).
+3. Для [практичных](https://catalog.onliner.by/mobile/digma/linxa230wt2gb).
+4. Для [??](https://catalog.onliner.by/mobile/maxvi/j8r).
 
