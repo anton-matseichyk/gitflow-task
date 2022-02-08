@@ -29,3 +29,6 @@
 3. Для [практичных](https://catalog.onliner.by/mobile/digma/linxa230wt2gb).
 4. Для [??](https://catalog.onliner.by/mobile/maxvi/j8r).
 
+# Заключение
+**Выше был представлен телефон Maxvi B10. Его спецификация и возможности.**
+*На этом наш обзор этого мобильного телефона окончен*
